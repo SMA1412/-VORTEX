@@ -1,4 +1,4 @@
 # VORTEX
 Only for gemini AI
 
-[Follow my instagram](@Sd.aifnY)
+[Follow my instagram](@sd.aifny)
